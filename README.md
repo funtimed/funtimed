@@ -1,3 +1,4 @@
-★ hi chat pmo
+★ me and beanso
 -----------
-<img width="220" height="220" alt="1000000958" src="https://github.com/user-attachments/assets/e0c2014e-d460-4cda-9b67-f746f2fed97c" />
+![1000000961](https://github.com/user-attachments/assets/f39dc505-10ef-4462-9852-e4c065d78686)
+
